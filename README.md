@@ -1,0 +1,1 @@
+# Perbandingan-resolusi-gambar
